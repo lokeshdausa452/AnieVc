@@ -10,7 +10,7 @@ For Any Query Join Our Support Group 👥
 Hey Welcome To Here 💫💫 You Can Make Your Own Music Bot For Music 🎶
 
 
-[![MUSICBOT LOGO](https://telegra.ph/file/0d37f17037ac92796bfd1.jpg)](https://t.me/Aniebotsupports )
+[![MUSICBOT LOGO](https://te.legra.ph/file/e715436ee380abcf8f6b1.jpg)](https://t.me/DAUSA_123 )
 
 🔥 𝐃𝐄𝐏𝐋𝐎𝐘 𝐎𝐍 𝐘𝐎𝐔𝐑 𝐎𝐖𝐍 𝐑𝐈𝐒𝐊 🔥
 
